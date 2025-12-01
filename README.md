@@ -1,1 +1,1 @@
-Inteegrantes: Dario Salas Cardyn - Lukas Valenzuela Campos
+Integrantes: Dario Salas Cardyn - Lukas Valenzuela Campos
